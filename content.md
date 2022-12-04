@@ -20,7 +20,7 @@ Best navigate the service supported by multiple map company. We will ensure you 
 
 #### 03 the healthy manager
 
-Count the calories you burn when cycling , help you manage you weight. Enjoying biking and gain health.
+Count the calories you burn when cycling, offer some healthy recipes. Help you manage you weight. Enjoying biking and gain health.
 
 ### Maps and calculator
 
